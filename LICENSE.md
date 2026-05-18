@@ -1,4 +1,4 @@
-# 
+# professional bot sniper NFT addons é o melhor bot sniper NFT addons com detecção de mint e transações em pacote. Seguro, confiável e otimizado para estratégias de sniper,
 
 
 
